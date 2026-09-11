@@ -193,9 +193,9 @@ To become a cybersecurity professional specializing in Security Operations (SOC)
 
 ## 📫 Connect With Me
 
-- LinkedIn: *(Add your LinkedIn URL)*
+- LinkedIn: *(www.linkedin.com/in/oluronke-johnson-aa8a30129)*
 - GitHub: *(Add your GitHub URL)*
-- Email: *(Optional)*
+- Email: *(ruthronke@gmail.com)*
 
 ---
 
